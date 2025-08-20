@@ -26,3 +26,19 @@ Municipal  corporation  engineer at ludhiana
 
 * Kulwinder Singh Maan
 All branches are too good 👍 
+
+Day-2
+
+* Telling us about Satya scholarship program benefits and how to apply it.
+
+* Taranpreet kaur and Arshdeep Singh tell us about github and and about markdown.
+
+* Harpreet mam tell us about rs problem solving.
+
+* Also senior tells about  INDIABIX APP for problem solving.
+
+- Oswal numerical aplitude preparing for placement.
+
+Day-3
+
+* Priya Darshani Mam tell us about happiness,physical facilities,relationship and right understanding.
